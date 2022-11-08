@@ -10,3 +10,4 @@ python osaka.py
 
 ![img](https://github.com/ryugenxd/OSAKA/raw/main/images%20(13).jpeg)
 ## Tinggalkan Star mu Om 
+__TOOL CRACK FACEBOOK__
